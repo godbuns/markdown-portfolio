@@ -1,0 +1,1 @@
+![pickapicka](https://duckduckgo.com/?q=cute+pikachu+pictures&t=newext&atb=v254-1&iax=images&ia=images&iai=http%3A%2F%2Fimg02.deviantart.net%2F2fea%2Fi%2F2012%2F021%2F7%2F4%2F__cute_pikachu___by_mistickyumon-d4n6ush.png)
